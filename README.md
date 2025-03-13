@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @33dajin33
+- 👋 Hi, I’m @33dajin33,小透明一枚~~~
 - 👀 I’m interested in artist
 - 🌱 I’m currently learning labalabala
 - 💞️ I’m looking to collaborate on 
